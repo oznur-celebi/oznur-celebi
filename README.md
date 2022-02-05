@@ -1,4 +1,4 @@
-### Hi, I'm ÖZNUR CELEBI. 👋🏻 💻
+### Hi, I'm oznur-celebi. 👋🏻 💻
 
 
 <hr>
